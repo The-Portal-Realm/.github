@@ -1,12 +1,16 @@
 # The Portal Realm
 - Discord: https://disboard.org/server/join/494558622664228864
+
+## Social Media
 - Facebook: https://www.facebook.com/ThePortalRealm
 - Instagram: https://www.instagram.com/theportalrealm/
-- Patreon: https://www.patreon.com/theportalrealm
 - Reddit: https://www.reddit.com/r/ThePortalRealm/
 - TikTok: https://www.tiktok.com/@theportalrealm
 - Twitch: https://www.twitch.tv/theportalrealm
 - Twitter: https://twitter.com/ThePortalRealm
+
+## $$$ Support
+- Patreon: https://www.patreon.com/theportalrealm
 -----
 **SERVER JUST LAUNCHED APRIL 16th!**
 
