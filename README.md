@@ -1,3 +1,4 @@
+- Discord: https://disboard.org/server/join/494558622664228864
 - Facebook: https://www.facebook.com/ThePortalRealm
 - Instagram: https://www.instagram.com/theportalrealm/
 - Patreon: https://www.patreon.com/theportalrealm
